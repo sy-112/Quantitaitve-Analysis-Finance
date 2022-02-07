@@ -1,1 +1,1 @@
-# Quantitaitve-Analysis-Finance-
+# Quantitaitve-Analysis-Finance
